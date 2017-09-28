@@ -1,6 +1,6 @@
 # Open Legend Neat Reference
 
-*To skip straight to the start of the document -* [Click Here]("placeholder link")
+*To skip straight to the start of the document -* [Click Here](Character Creation "placeholder link")
 
 ##### Why does this exist?
 <div style="text-align: justify">
