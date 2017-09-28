@@ -4,8 +4,8 @@ Before you can start telling your story, you’ll need a character to play. This
 
 Before reading on, take a minute and think of your favorite movies, books, or video games.
 
-*Who were the characters you identified with?
+*Who were the characters you identified with?*
 
-Who inspired you?*
+*Who inspired you?*
 
 Now that you’ve got some of your favorites in mind, let’s create your character.
