@@ -10,6 +10,4 @@ Before reading on, take a minute and think of your favorite movies, books, or vi
 
 Now that you’ve got some of your favorites in mind, let’s create your character.
 
-```
-
-```
+WHAT ON THE HECK!>
